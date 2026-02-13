@@ -93,7 +93,7 @@ We may update this Privacy Policy from time to time. We will notify users of any
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-**Email:** khayalsharifli@gmail.com
+**Email:** xeyalsherif@gmail.com
 
 ---
 
